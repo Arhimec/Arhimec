@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on web3 projects
 - 📫 How to reach me only on X @xVladinstein
 - ⚡ Fun fact: Pie or Die mfr
+- 🥧 https://play.blockversehub.xyz/pieordie2
